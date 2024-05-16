@@ -1,5 +1,5 @@
-### ✨☁️ Olá! Boas Vindas ao meu perfil!! ✨☁️
-Meu nome é Beatriz Augusto Bravin!🐿️
+### ✨☁️ Olá! Boas Vindas ao meu perfil!! ☁️✨
+🐿️
 
 ‧₊˚🖇️✩ ₊˚🎧⊹♡
 
