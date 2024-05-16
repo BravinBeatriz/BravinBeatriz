@@ -1,6 +1,5 @@
 ### ✨☁️ Olá! Boas Vindas ao meu perfil!! ☁️✨
-🐿️
-
+  
 ‧₊˚🖇️✩ ₊˚🎧⊹♡
 
 - 📒 Atualmente sou uma estudande e estou realizando os projetos do Alura!
